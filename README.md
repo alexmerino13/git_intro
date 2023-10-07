@@ -1,1 +1,2 @@
 Alexander Merino
+merinoa@oregonstate.edu
